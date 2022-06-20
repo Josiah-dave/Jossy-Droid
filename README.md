@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Jossy-Droid
-- 👀 I’m interested in ... Coding 
+- 👋 Hi, I’m Josiah David
+- 👀 I’m interested in ... Coding and web development
 - 🌱 I’m currently learning ... Web development
 - 💞️ I’m looking to collaborate on any of my projects
 - 📫 How to reach me Josiahdavid111@gmail.com or whatsapp me +2349036216613
